@@ -1,4 +1,4 @@
-# 
+# Stealth Vegas Pro for PC tools is the best Vegas Pro for PC tools with piano-roll and real-time-preview. Safe, reliable, and optimized for maximum performance.
 
 
 
